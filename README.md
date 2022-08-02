@@ -1,13 +1,10 @@
-{ "SendMessage":2, "MyMessage": "NOTICE Update your Config now😋 💯 NEW SERVERS 💯
-
+NOTICE Update your Config now😋 💯 NEW SERVERS 💯
 👉 🇺🇲 
 👉 🇯🇵 
 👉 🇰🇷 
 👉 🇸🇬 
 👉 🇵🇭
-
 💯 NET WORKS NO LOAD & PROMO NET💯
-
 🤩 GTM NO LOAD 
 🤩 STS NO LOAD 
 🤩 DITO NO LOAD 
@@ -18,11 +15,6 @@
 🤩 GIGA VIDEO 
 🤩 GIGA GAMES 
 🤩 UNLI TIKTOK
-
-❤️AND MANY MORE UP COMING PROMO BYPASS❤️
-
 🤖THE WEAKEST SHALL DIE THE STRONGEST SHALL LIVE🤖
-
 ❤️Messege Mo ako para sa free Voucher mo https://m.me/emmanuel.bongabong❤️
-
 ➡️HAH TUNNEL
