@@ -1,9 +1,3 @@
-NOTICE Update your Config now😋 💯 NEW SERVERS 💯
-👉 🇺🇲 
-👉 🇯🇵 
-👉 🇰🇷 
-👉 🇸🇬 
-👉 🇵🇭
 💯 NET WORKS NO LOAD & PROMO NET💯
 🤩 GTM NO LOAD 
 🤩 STS NO LOAD 
